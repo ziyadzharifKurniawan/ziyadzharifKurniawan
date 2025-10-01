@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding and computer engineering
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: not yet
-- 😄 Pronouns: ????
+- 😄 Pronouns: never/giveup
 - ⚡ Fun fact: i'm happy right now
 
 <!---
