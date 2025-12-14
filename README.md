@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ziyadzharifKurniawan
-- 👀 I’m interested in f1, coding, valorant, other games, life
+- 👀 I’m interested in league of legends, coding, valorant, other games, japan
 - 🌱 I’m currently learning coding and computer engineering
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me: not yet
