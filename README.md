@@ -1,12 +1,51 @@
 - 👋 Hi, I’m @ziyadzharifKurniawan
-- 👀 I’m interested in league of legends, coding, valorant, other games, japan
-- 🌱 I’m currently learning coding and computer engineering
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me: not yet
-- 😄 Pronouns: never/giveup
-- ⚡ Fun fact: i'm happy right now
+i code stuff and play games.
 
-<!---
-ziyadzharifKurniawan/ziyadzharifKurniawan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+also gunjou-sanka
+繋がっていたいって 信じられる言葉
+だってもう昨日の僕らにおさらば
+青い春を過ごした 遠い稲妻
+さっと泣いて 前だけを向けたら
+きっとどんなに楽になれていたろうな
+この心を揺らした 一縷の望みは
+ないものねだりは辞めた 未完成人間
+素晴らしき世界だけが 答えを握ってる
+諦めてしまうほど この先沢山の
+後悔が君を待ってるけど
+もうない 迷いはしないよ
+この傷も愛しく 思えてしまうほど
+重ねてしまうよ 不格好なまんまでいいから
+走れ その歩幅で 走れ 声 轟かせてくれ
+期待と不安を同じくらい抱きしめて
+君と今を紡ぐ未来照らして
+顔も名前も知らない僕たちが
+たった1つの音をかき鳴らす
+いたずらみたいな奇跡のような刹那
+あっという間に流れる時が
+ありのままで在り続ける怖さが
+失った時間は取り戻せないけれど
+過去を振り返ってばかりじゃ 泣いたっていいんだ
+悔しさと痛みだけが 君を肯定するから
+大人になったら 忘れてしまうの
+君との約束をした場所は
+もうない 覚えていたいよ
+思い出も愛しく 思えてしまうほど
+重ねてしまうよ 不格好なまんまでいいから
+その声はどこまでも鳴り響いて
+確かな理由を抱いてここまで来たんだ
+まだ終わらない旅路なんだ
+いつしか想いは形になる この真っ白に染まる朝
+忘れられないまま だから
+諦めてしまうほど この先沢山の
+もうない 迷いはしないよ
+かけがえのないもの 溢れてしまうよ
+答えは君のその手の中に
+離さないで 物語は一歩前へ
+諦めてしまうほど この先沢山の
+後悔が君を待ってるけど
+もうない 迷いはしないよ
+この傷も愛しく 思えてしまうほど
+重ねてしまうよ 不格好なまんまでいいから
+走れ その歩幅で 走れ 声 轟かせてくれ
+期待と不安を同じくらい抱きしめて
+君と今を紡ぐ未来照らして
